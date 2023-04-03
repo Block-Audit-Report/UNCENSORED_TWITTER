@@ -1,3 +1,3 @@
 # UNCENSORED_TWITTER
 
-![Certificate_UTW](https://user-images.githubusercontent.com/81981737/166327401-69ee799b-4b40-48ff-aa6f-0124d88c75e4.jpg)
+![uncensoredtwitter](https://user-images.githubusercontent.com/121312707/229483241-65256509-02d1-43b9-8481-5f215e6256f6.png)
